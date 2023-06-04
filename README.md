@@ -1,0 +1,5 @@
+- 💔 Hi, I’m @ENGinUnity;
+- 💔 I’m interested in C# or C++ Projects/Unity projects;
+- 💔 I’m currently learning Chimestry and PhP
+- 💔 I’m looking to collaborate on Unity Projects or C# progams
+- 💔 Looking for a especial contact? Easy, Email me on "contato.pedro@gmail.com" or U can see me on Linkedin (@Pedro (ENG) Bonetti)
